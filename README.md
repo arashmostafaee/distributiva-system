@@ -1,0 +1,2 @@
+# distributiva system
+ skolan
